@@ -2,7 +2,7 @@
 - 👀 I’m interested in Informatic and Plugin development
 - 🌱 I’m currently learning Coding Java, Phyton and some HTTP
 - 💞️ I’m looking to collaborate with Linus Tech Tipps :)
-- 📫 How to reach me CURRENTLY NOT AVAULABLE
+- 📫 How to reach me CURRENTLY NOT AVAILABLE
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Im intresstet to have a Girlfriend xD
 
